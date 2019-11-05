@@ -1,4 +1,4 @@
-http://youwht.ml/tag_dendou/%E6%96%B0%E4%BA%BA%E3%83%97%E3%83%AD%E3%82%B0%E3%83%A9%E3%83%9E%E5%BF%9C%E6%8F%B4](http://youwht.ml/tag_dendou/新人プログラマ応援)
+[【新人プログラマ応援】 Qiita殿堂入り記事](http://youwht.ml/tag_dendou/%E6%96%B0%E4%BA%BA%E3%83%97%E3%83%AD%E3%82%B0%E3%83%A9%E3%83%9E%E5%BF%9C%E6%8F%B4)
 
 
 
